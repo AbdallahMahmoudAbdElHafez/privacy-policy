@@ -20,4 +20,4 @@ We take reasonable measures to protect user data.
 
 ## Contact
 If you have any questions, contact us at:
-your@email.com
+abdallah.mahmoud.te@gmail.com
